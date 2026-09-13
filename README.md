@@ -1,1 +1,0 @@
-# Comparando-SuperTrunfo
